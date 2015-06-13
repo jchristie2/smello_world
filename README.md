@@ -1,5 +1,6 @@
 # smello_world
 pointless demo
 
-so this is supposed to be where i define the project. 
-good luck with that.
+this is where i break everythi#$%^&&*(&%
+
+my work here is done
